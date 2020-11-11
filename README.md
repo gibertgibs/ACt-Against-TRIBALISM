@@ -6,3 +6,5 @@ Is the definition Webster Dictionary gives to explain tribalism.
 I hereby welcome all the vibrant South Sudanese youth and the other groups of the people who hope to see a South Sudan with "Love and Lead policy" other than "Divide and Ruled Policy of the British adapted in 1955.
 That is to see That we have ONE PEOPLE, ONE NATION, ONE SOUTH SUDAN.
 TO co-operate in this Repo. 
+
+And this will be in regards of Podcasting to enable us reach a wider range of the people campaigning against this DIEseas.
